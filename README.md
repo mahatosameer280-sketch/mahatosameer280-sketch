@@ -1,5 +1,5 @@
  💫 Hi 👋, Mikey
-- 🔭 **I’m currently working on:** Student
+- 🔭 **I’m currently working on:** Hunting job
 - 🌱 **I’m currently learning:**Java,Java Script and CSS
 - 👯 **I’m looking to collaborate on:** New users
 - 💬 **Ask me about:** anythings
