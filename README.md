@@ -4,7 +4,7 @@
 - 👯 **I’m looking to collaborate on:** New users
 - 💬 **Ask me about:** anythings
 - 📫 **How to reach me:** mahatosameer280@gmail.com
-- 😄 **Pronouns:** Mikey
+- 😄 **Pronouns:** he/his
 - ⚡ **Fun fact:** Learning new things
 
 ## 🌐 Socials:
